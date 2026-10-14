@@ -1,1 +1,8 @@
 # PROJET_Data_DDEFI_001
+Groupe Alpha
+
+JEULIN Eva
+PARTHENON Nolan
+SCHALLER GROSSHEINS Nathan
+PAGET Maximilien
+
